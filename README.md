@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on  
 - 🤔 I’m looking for help with ...Sessions
 - 💬 Ask me about ... Necessery things.
-- 📫 How to reach me: Mail to mail ID(ghantamounika.05).
+- 📫 How to reach me: Mail to mail ID(ghantamounika.05@gmail.com).
 - 😄 Pronouns: I
 - ⚡ Fun fact: ....
